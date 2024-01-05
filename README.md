@@ -1,0 +1,1 @@
+# day-log.github.io
